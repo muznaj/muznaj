@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Muzna Abdallah AlJabri
+- 📫 muznajj@outlook.com
+- 📲 +968 95497177
